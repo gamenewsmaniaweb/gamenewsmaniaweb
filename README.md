@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... Web Development, Content Creating
 - 🌱 I’m currently learning ...PWA for Google Blogger
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... gamenewsmania@gmail.com https://www.gamenewsmania.in
+- 📫 How to reach me ... contact@gamenewsmania.in https://www.gamenewsmania.in
